@@ -1,5 +1,3 @@
-# zaseth-likes-children
-im a child so pls dont touch me
 # How CPLegacy's ski turned out to be Zaseth
 fuck zaseth fuck r/clubpenguin
 
